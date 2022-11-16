@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @らんらん
 - 👀 I’m interested in ...赚💴
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...744376173@qq.com
 
 <!---
